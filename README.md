@@ -8,4 +8,6 @@
 
 [原神展示页、版本KV、新角色](https://www.miyoushe.com/ys/collection/2627719)
 
+space.bilibili.com/1550564/upload/opus
+
 epic也发，但是有水印
